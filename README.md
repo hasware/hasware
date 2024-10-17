@@ -4,8 +4,7 @@
 -   i’m looking to collaborate on: fortnite
 -   how to reach me: climb mt. everest and call my name 3 times to summon me
 -   pronouns: he/he
--   fun fact:
-  nalkaroun secret dulleossan yaegin beil soge
+-   fun fact: nalkaroun secret dulleossan yaegin beil soge
 jeomjeom deo gibeun h-h-hush mameul gyeonweo ije
 yeogin ontong eoduun bam haneulsaek
 geurimjajocha gireul ilke hae
