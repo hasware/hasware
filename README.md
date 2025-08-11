@@ -1,6 +1,6 @@
 -   hi, I’m @hasware
 -   i’m interested in: being a thug
--   i’m currently learning: to rap hardcore
+-   i’m currently learning: how to rap hardcore
 -   i’m looking to collaborate on: rapping on the same track
--   how to reach me: you casn find me baking cookies at night
+-   how to reach me: find me baking cookies at night
 -   fun fact: i knit sweaters yo
